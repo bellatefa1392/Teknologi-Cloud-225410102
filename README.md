@@ -1,0 +1,2 @@
+# Teknologi-Cloud-225410102
+TA UAS PRAKTIKUM CLOUD
